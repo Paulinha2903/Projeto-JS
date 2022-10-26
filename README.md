@@ -1,0 +1,1 @@
+Comparaçãode Salario e Inflação.
